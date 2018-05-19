@@ -6,7 +6,7 @@ Careful with this one. Bubbly don't keep, so you might as well kill the bottle, 
 * 1/4 oz fresh lime juice
 * 4 oz Prosecco
 
-Add St. Germain and lime juice to a champagne flute. Top with Prosecco, pouring slowly.
+Add St. Germain and lime juice to a chilled Champagne flute. Top with Prosecco, pouring slowly.
 
 **Notes**
 
