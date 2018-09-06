@@ -3,7 +3,7 @@
 I like this drink served up with an egg white foam. Super refreshing, especially after the workout you get while shaking. You've _earned_ it.
 
 * 2 oz bourbon
-* 3/4 oz fresh lemon juice
+* 3/4 oz fresh lemon juice (a little less than 1 small lemon)
 * 1/2 oz 2:1 simple syrup
 * 1 egg white
 * 8-10 drops Angostura bitters
